@@ -1,1 +1,1 @@
-# moXq1.github.io
+# moXq1.github.io/Natours
